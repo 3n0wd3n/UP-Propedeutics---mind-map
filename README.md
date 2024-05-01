@@ -1,1 +1,1 @@
-# UP-Propedeutics---mind-map
+# UP Propedeutics mind map
